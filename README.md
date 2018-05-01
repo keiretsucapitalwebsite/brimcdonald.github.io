@@ -1,1 +1,0 @@
-# brimcdonald.github.io
